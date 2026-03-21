@@ -1,5 +1,6 @@
-![1000082027](https://github.com/user-attachments/assets/41c6c355-9c2d-4b7a-8806-98cb25d776a8)
+![39b416c1d7e92d3a1116fde67bffc79b](https://github.com/user-attachments/assets/086ab6cd-2672-4da0-9b68-9a525d5104ee)
 
+ｒｅａｄ ｍｅ!! 
 ‎
 ‎
 ‎ᘎ 
@@ -85,5 +86,4 @@
 ‎
 ‎░ ᘎ — ✉ ,, 
 ‎
-‎![63b99dcf464523201f384cb9f27812aa](https://github.com/user-attachments/assets/a4b5360b-9da9-45c8-9fbc-ce00efa69ff2)
-
+‎![63b99dcf464523201f384cb9f27812aa](https://github.com/user-attachments/assets/a4b5360b-9da9-45c8-9fbc-ce00ef
