@@ -1,7 +1,8 @@
 ‎
 ‎
 ‎- 𝘞𝘩𝘦𝘳𝘦 𝘥𝘰 𝘺𝘰𝘶 𝘸𝘢𝘯𝘯𝘢 𝘨𝘰?. . . 
-‎      - 𝘍𝘢𝘳, 𝙁𝙖𝙧 𝙖𝙬𝙖𝙮. 
+‎     
+       - 𝘍𝘢𝘳, 𝙁𝙖𝙧 𝙖𝙬𝙖𝙮. . .
 
 ‎
 ‎<img width="540" height="280" alt="6b54e58764537ec372d28d6e9205e1cd (1)" src="https://github.com/user-attachments/assets/08756a6c-f81a-4761-84d0-a20ceea840ac" />
