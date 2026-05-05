@@ -56,7 +56,7 @@
 ‎. . . its always "ily" but never “ 𝘠𝘤𝘰𝘨𝘵.𝘠𝘥𝘨𝘵.𝘚𝘣𝘪𝘺.𝘈𝘪𝘥𝘫𝘴𝘵𝘣𝘪𝘴𝘪.𝘐𝘥𝘵𝘢𝘨𝘧𝘮𝘵𝘧𝘵𝘰.𝘐𝘬𝘪𝘣𝘪𝘬𝘺.𝘎𝘮𝘧.𝘞𝘺𝘥𝘢𝘵𝘤.𝘒𝘨𝘧. *
 
 ‎
-<img width="736" height="736" alt="5a5fc555dc66778dd92ec44ae207557b webp" src="https://github.com/user-attachments/assets/3c3101ef-5f23-4051-9030-f3e494b6895e" />
+<img width="540" height="310" alt="00ea8266b46a5c1c2ead2ffff53a94ca" src="https://github.com/user-attachments/assets/ce05780e-b1ec-412a-9b98-a9dbedf20258" />
 
 ‎
 ᴅᴏ ʏᴏᴜ ʟɪᴋᴇ ᴛʜᴇ ᴄᴏʟᴏʀ ʙʟᴜᴇ ? 
@@ -64,7 +64,7 @@
 
 ‎
 ‎
-𝗧𝗛𝗮𝗻𝗸𝘀 𝗳𝗼𝗿 𝗥𝗲𝗮𝗱𝗶𝗻𝗴 
+𝗧𝗵𝗮𝗻𝗸𝘀 𝗳𝗼𝗿 𝗥𝗲𝗮𝗱𝗶𝗻𝗴 
 
 ‎
 ‎𝖿𝗈𝗅𝗅𝗈𝗐 𝗆𝖾 𝗈𝗋 𝖺 𝖽𝖾𝗆𝗈𝗇 𝗐𝗂𝗅𝗅 𝖾𝖺𝗍 𝗒𝗈𝗎. ´∧ω∧｀ 
