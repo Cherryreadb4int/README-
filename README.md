@@ -1,26 +1,19 @@
-‎
-‎
-‎- 𝘞𝘩𝘦𝘳𝘦 𝘥𝘰 𝘺𝘰𝘶 𝘸𝘢𝘯𝘯𝘢 𝘨𝘰?. . . 
-‎     
-       - 𝘍𝘢𝘳, 𝙁𝙖𝙧 𝙖𝙬𝙖𝙮. . .
-
-‎
-‎<img width="540" height="280" alt="6b54e58764537ec372d28d6e9205e1cd (1)" src="https://github.com/user-attachments/assets/08756a6c-f81a-4761-84d0-a20ceea840ac" />
-
+## Welcome and Hii !! 
 
 ‎
 ‎  🇦 🇧 🇴 🇺 🇹  🇲 🇪 ࿐ *
 ‎
+
 ‎░ 𝖨 𝖭 𝖥 𝖯 🦈
 
 ‎
-‎((𝘛𝘢𝘬𝘦𝘯 𝘣𝘺 𝘈𝘴𝘩𝘺!!)) 
+## ‎((𝘛𝘢𝘬𝘦𝘯 𝘣𝘺 𝘈𝘴𝘩𝘺!!)) 
 
 ‎
-‎‘ 𝓓𝓸 𝔂𝓸𝓾 𝓵𝓲𝓴𝓮 𝓽𝓱𝓮 𝓸𝓬𝓮𝓪𝓷𝓼 . . 🌊
+‎‘ 𝓔𝓿𝓮𝓻𝔂 𝓾𝓷𝓲𝓿𝓮𝓻𝓼𝓮, 𝓽𝓱𝓮𝔂'𝓵𝓵 𝓪𝓵𝔀𝓪𝔂𝓼 𝓯𝓲𝓷𝓭 𝓮𝓪𝓬𝓱 𝓸𝓽𝓱𝓮𝓻 𝓫𝓾𝓽 𝓽𝓱𝓮𝔂'𝓵𝓵 𝓪𝓵𝓼𝓸 𝓵𝓮𝓪𝓿𝓮 𝓮𝓪𝓬𝓱 𝓸𝓽𝓱𝓮𝓻. . . 
 
 ‎
-<img width="571" height="324" alt="da685c21e4f555bad69f52593c221dc7" src="https://github.com/user-attachments/assets/7db86d00-af47-4633-b43f-e8f3ad95f631" />
+<img width="474" height="316" alt="0faa7747ea22268edf3796502f12a189" src="https://github.com/user-attachments/assets/71fd4097-5deb-447e-966e-15381a587e66" />
 
 ‎
 𝗨𝗦𝗦!! (𝖠𝗌𝗁𝗁𝗒) (*´ω`*)
@@ -31,25 +24,26 @@
 ‎🇫 🇦 🇳 🇩 🇴 🇲 🇸  ☄️ , , 
 
 ‎
-‎✔ 𝖨𝖭𝖳 𝖥𝖠𝖭𝖣𝖮𝖬𝖲 — 𝖬𝖷𝖳𝖷 , 𝖦𝖤𝖭𝖲𝖧𝖨𝖭 , 𝖬𝖫𝖯 , 𝖠𝖫𝖭𝖲𝖳 , 𝖫𝖬𝖪 , 𝖲𝖥𝖶𝖠𝖳𝖣𝖤 , 𝖦𝖱𝖠𝖵𝖨𝖳𝖸 𝖥𝖠𝖫𝖫𝖲 , 𝖲𝖳𝖤𝖵𝖤𝖭 𝖴𝖭𝖨𝖵𝖤𝖱𝖲𝖤 , 𝖢𝖯𝖪 , 𝖧:𝖳𝖬 , 𝖤:𝖳𝖬 , 𝖧𝖠𝖬𝖨𝖫𝖳𝖮𝖭 , 𝖯𝖩𝖲𝖪
+‎✔ 𝖨𝖭𝖳 𝖥𝖠𝖭𝖣𝖮𝖬𝖲 — 𝖬𝖷𝖳𝖷 , 𝖦𝖤𝖭𝖲𝖧𝖨𝖭 , 𝖬𝖫𝖯 , 𝖠𝖫𝖭𝖲𝖳 , 𝖫𝖬𝖪 , 𝖲𝖥𝖶𝖠𝖳𝖣𝖤 , 𝖦𝖱𝖠𝖵𝖨𝖳𝖸 𝖥𝖠𝖫𝖫𝖲 , 𝖲𝖳𝖤𝖵𝖤𝖭 𝖴𝖭𝖨𝖵𝖤𝖱𝖲𝖤 , 𝖢𝖯𝖪 , 𝖧:𝖳𝖬 , 𝖤:𝖳𝖬 , 𝖧𝖠𝖬𝖨𝖫𝖳𝖮𝖭 , 𝖯𝖩𝖲𝖪 , GHOST (pls int with me) 
 
 ‎
 ‎✘ 𝖣𝖭𝖨 𝖥𝖠𝖭𝖣𝖮𝖬𝖲 — 𝖢𝖱𝖪 , 𝖧𝖧 / 𝖧𝖡 𝖠𝖭𝖣 𝖠𝖭𝖸 𝖯𝖱𝖮𝖡𝖫𝖤𝖬𝖠𝖳𝖨𝖢 𝖮𝖭𝖤𝖲. 
 
 ‎
-‎<img width="889" height="500" alt="ae52d968e7d8117170d2eeff6245ca5c" src="https://github.com/user-attachments/assets/a6bf1e85-684b-441b-b6a3-83848df39b0d" />
+‎<img width="736" height="736" alt="a387ec3f9af33fe50f51448f0ed2aa15" src="https://github.com/user-attachments/assets/23c7a63b-a7ee-4b4b-88c2-8fc5bc3e963e" />
 
 ‎
 ‎
-‎. . . its always "ily" but never “ 𝘠𝘤𝘰𝘨𝘵.𝘠𝘥𝘨𝘵.𝘚𝘣𝘪𝘺.𝘈𝘪𝘥𝘫𝘴𝘵𝘣𝘪𝘴𝘪.𝘐𝘥𝘵𝘢𝘨𝘧𝘮𝘵𝘧𝘵𝘰.𝘐𝘬𝘪𝘣𝘪𝘬𝘺.𝘎𝘮𝘧.𝘞𝘺𝘥𝘢𝘵𝘤.𝘒𝘨𝘧. *
+‎. . . It's always I love you, but never “ 𝘞𝘰𝘶𝘭𝘥 𝘺𝘰𝘶 𝘮𝘢𝘬𝘦 𝘮𝘦 𝘵𝘩𝘦 𝘩𝘢𝘱𝘱𝘪𝘦𝘴𝘵 𝘮𝘢𝘯 𝘦𝘷𝘦𝘳 𝘢𝘭𝘪𝘷𝘦 ? '
 
 ‎
 <img width="540" height="310" alt="00ea8266b46a5c1c2ead2ffff53a94ca" src="https://github.com/user-attachments/assets/ce05780e-b1ec-412a-9b98-a9dbedf20258" />
 
 ‎
-ᴅᴏ ʏᴏᴜ ʟɪᴋᴇ ᴛʜᴇ ᴄᴏʟᴏʀ ʙʟᴜᴇ ? 
+ᴅᴏ ʏᴏᴜ ʟɪᴋᴇ ᴛʜᴇ ɴɪsᴀᴀᴄ ? 
 ‎     
-    ☐ ʏᴇs        ☐ ʏᴇs
+    ☐ ʏᴇs        ☐ ᴀʙsᴏʟᴜᴛᴇʟʏ, ʏᴇs 
+                   ᴅᴇғɪɴɪᴛᴇʟʏ, ᴀɢʀᴇᴇ
 
 ‎
 ‎
