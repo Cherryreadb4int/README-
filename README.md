@@ -37,7 +37,7 @@
 ‎. . . It's always I love you, but never “ 𝘞𝘰𝘶𝘭𝘥 𝘺𝘰𝘶 𝘮𝘢𝘬𝘦 𝘮𝘦 𝘵𝘩𝘦 𝘩𝘢𝘱𝘱𝘪𝘦𝘴𝘵 𝘮𝘢𝘯 𝘦𝘷𝘦𝘳 𝘢𝘭𝘪𝘷𝘦 ? '
 
 ‎
-<img width="540" height="310" alt="00ea8266b46a5c1c2ead2ffff53a94ca" src="https://github.com/user-attachments/assets/ce05780e-b1ec-412a-9b98-a9dbedf20258" />
+![Uploading 5955a3709bdeb99afa007890a1d82aec.jpg…]()
 
 ‎
 ᴅᴏ ʏᴏᴜ ʟɪᴋᴇ ᴛʜᴇ ɴɪsᴀᴀᴄ ? 
