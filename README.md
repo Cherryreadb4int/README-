@@ -30,7 +30,8 @@
 ‎✘ 𝖣𝖭𝖨 𝖥𝖠𝖭𝖣𝖮𝖬𝖲 — 𝖢𝖱𝖪 , 𝖧𝖧 / 𝖧𝖡 𝖠𝖭𝖣 𝖠𝖭𝖸 𝖯𝖱𝖮𝖡𝖫𝖤𝖬𝖠𝖳𝖨𝖢 𝖮𝖭𝖤𝖲. 
 
 ‎
-‎<img width="736" height="736" alt="a387ec3f9af33fe50f51448f0ed2aa15" src="https://github.com/user-attachments/assets/23c7a63b-a7ee-4b4b-88c2-8fc5bc3e963e" />
+‎<img width="720" height="720" alt="f2445ca310942b0c1d34acb86b2ad3a7 (1)" src="https://github.com/user-attachments/assets/e30dab8f-a42e-448f-9f1b-780280148c0c" />
+
 
 ‎
 ‎
